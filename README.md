@@ -10,4 +10,4 @@
 
 本页面专为热衷日韩中文字幕内容的用户打造，收录大量高质量片源，涵盖剧情片、激情片与综合精品视频。所有资源均为无码中文字幕版本，支持在线播放，无需注册。每日更新，确保你第一时间获取最新日韩热门内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi15 ）</span>
